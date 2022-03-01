@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pheero
-- 👀 I’m interested in Quality training
+- 👀 I’m interested through quality training
 - 🌱 I’m currently learning IT strategy
 - 💞️ I’m looking to collaborate on a platform
 - 📫 How to reach me +255 07 59 19 13 31 or Anonorphee6@gmail.com
